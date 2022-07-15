@@ -1,4 +1,4 @@
-- ✌️ Hi, I’m @Aronas-bot, but you can call me @Aronas-bot.
+- ✌️ Hi, I’m @Arosaurus, but you can call me Aronas.
 - 😍 I like coding, sports and dinosaurs.
 - 🤗  I’m currently learning how to eat more.
 - 💸 I’m looking to collaborate on anything that pays.
